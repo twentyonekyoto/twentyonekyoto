@@ -10,8 +10,9 @@ Of course, these thoughts haunted, and I got a dream, that in one day, in one mo
  
  ### Section 3: My next steps?
  - After last day of studying, I took a rest and exhaled, thinking about next steps.
-And came to this understanding: ## 1. - Keep practice
-                                ## 2. - Learning how I can do freelance, because I never even used any freelance resources.
-                                ## 3. - Finding some internship
+And came to this understanding:
+## 1. - Keep practice
+## 2. - Learning how I can do freelance, because I never even used any freelance resources.
+## 3. - Finding some internship
                                
 #### Thanks for your attention! ####
