@@ -5,7 +5,7 @@
 - Likewise, I want to improve my new skills, learn new things and develop in IT direction.
 
  ### Section 2: Why I chose this way?
- - Whole my life, I'm using computer, playing video-games, watching series/films on different platforms, also YouTube, and while I'm on site, I am always asking myself how they created this website and how it is working.
+ - Whole of my life, I'm using computer, playing video-games, watching series/films on different platforms, also YouTube, and while I'm on site, I am always asking myself how they created this website and how it is working.
 Of course, these thoughts haunted, and I got a dream, that in one day, in one moment I'll start learning and getting to know with big world of IT industry. Someone said it's already late, but it's never too late to learn something new.
  
  ### Section 3: My next steps?
